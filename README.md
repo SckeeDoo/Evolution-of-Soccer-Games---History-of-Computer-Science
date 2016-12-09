@@ -21,3 +21,7 @@ Wth virtual reality gaming on the rise it is only a matter of time before footba
 
 <img src="http://i.telegraph.co.uk/multimedia/archive/03483/footballfifa16_3483584b.jpg"/>
 
+Players themselves are very excited by the game. The recent including of the female players in FIFA 16 brought a lot of media attention with England captain Steph Houghton saying: "Quite a few of us in the team play FIFA so I'm sure there will be a bit of banter about our ratings and a few extra competitive games. I'm looking forward to scoring as myself for the first time!"
+Those who are Prepier League fans enjoy a lot taking the role of the boss in the Football Manager, and even Ronaldinho and Pele are fans of soccer computer games. they also appea in the trailer for the FIFA games
+
+Football gaming it different from other game industries. Players can act out by being Cristiano Ronaldo on Neymar. they can score a gol to Oliver Khan and won the Wordl Cup or Champions League. This is Awesome! and its not just about graphics but about the feelings. Its not difficult to see why gamers would get a buzz from this sense of purpose and importance - even if it is just imaginary, but this give player a lot of pleasure, that's why !
