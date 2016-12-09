@@ -4,8 +4,7 @@ The first Soccer Video game was released in 1979 called NASL Soccer. Also in 197
 
 NASL Soccer featured stick figures as players, yet, at the time this was the closest thing to the real thing. After that apears Pele's Soccer on the Atari 2600. Even at this early stage, having this big name player was a major factor in the succes of the game - despite the graphics were very basic and not so good.
 
-![]("http://i.telegraph.co.uk/multimedia/archive/03483/football1_3483575b.jpg =500x500")
-
+<img src="http://i.telegraph.co.uk/multimedia/archive/03483/football1_3483575b.jpg" width="200" height="200" />
 
 
 
